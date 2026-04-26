@@ -1,0 +1,3 @@
+#Projekty - Większe
+Czyli projekty które nie są jak poprzednie czyli coś na wzór prac domowych a są bardziej fajnymi trochę większymi lub średniaczkami projektami
+w które włożyszłem więcej wysiłku oraz dobrze się bawiłem...
